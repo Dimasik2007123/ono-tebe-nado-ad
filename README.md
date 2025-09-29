@@ -1,1 +1,1 @@
-https://github.com/Dimasik2007123/ono-tebe-nado-ad
+https://github.com/Dimasik2007123/ono-tebe-nado-a
